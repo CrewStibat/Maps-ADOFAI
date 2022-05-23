@@ -1,0 +1,1 @@
+You may not take the assets from here
